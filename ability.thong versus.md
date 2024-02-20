@@ -1,3 +1,14 @@
+top 23i o np2n ion pio2ipno2in po2p ino npio2n ipo2n ipopoi2pnio n 2io ni2 ni ni
+
+ai dell money score ui detell innopianp content az dude they 23io 2npn io2pio2 inoppi o2 inpo2pio npio2 pio2 23ipnpion243nin2in 23n pin ip23pnio2np 3in324
+blond o2 nip2p ni n2ioppino 2 ni2 nio nop2io in2pin i n2o3i2
+th  ion oi2p3 iop 2inpoi npo2n iop2po inn io2inpo2nion2ii 2n i
+  th
+    th ion i2 n2inon io2 ino2 iopiop 2i p2  ipo2 m2m 2io 2imopiop2ip om2
+      th
+        hammer 23ini 2 nipo2 inpo2ipno 2ipon i npo2 iopn2i op inpo2p nio
+ 
+ 
  method.su asm.su
  think![Unknown-1](https://github.com/DarkEvamSar/they-su/assets/160559076/22e3cc7d-f5ed-4f76-a10c-0413ddfb8243)
 
