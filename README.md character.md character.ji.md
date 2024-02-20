@@ -1,6 +1,10 @@
+lol
+   character stage 001 echo they 23o4i2nio niop2n ipo in2o
+
 thiifetish fashion convention ![image](https://github.com/DarkEvamSar/they-su/assets/160559076/c1ed8f11-ca80-42fe-b49d-df98c23a135d)
 ![image](https://github.com/DarkEvamSar/they-su/assets/160559076/46944782-03fa-419a-898a-b279e635d700)
 
+002 character![Unknown-2](https://github.com/DarkEvamSar/they-su/assets/160559076/78614e9c-539f-41e0-a2e9-b81cc1183026)
 
 
 crystal info oi23n ipn ip2ni pon ip2n i n2
