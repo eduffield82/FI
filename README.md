@@ -1,4 +1,5 @@
 thiifetish fashion convention ![image](https://github.com/DarkEvamSar/they-su/assets/160559076/c1ed8f11-ca80-42fe-b49d-df98c23a135d)
+![image](https://github.com/DarkEvamSar/they-su/assets/160559076/46944782-03fa-419a-898a-b279e635d700)
 
 
 
