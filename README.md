@@ -1,4 +1,5 @@
-thiifetish fashion convention![Uploading image.png…]()
+thiifetish fashion convention ![image](https://github.com/DarkEvamSar/they-su/assets/160559076/c1ed8f11-ca80-42fe-b49d-df98c23a135d)
+
 
 
 crystal info oi23n ipn ip2ni pon ip2n i n2
