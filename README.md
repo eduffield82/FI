@@ -1,3 +1,7 @@
+fetish fashion convention
+
+
+
 ![Fetish_Fashion_2012](https://github.com/DarkEvamSar/they-su/assets/160559076/f096f44e-bea3-4ea1-94ec-69496a3e2780)
 ![beatytechhero](https://github.com/DarkEvamSar/they-su/assets/160559076/6d466984-8c95-4782-875c-db7cfd35cc73)
 ![1_EUNa4wf1urSjLfd8M2IUyg](https://github.com/DarkEvamSar/they-su/assets/160559076/658053a9-a564-4265-aed4-31ada6949cd5)
