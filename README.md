@@ -15,7 +15,7 @@ gala
      ha
      ha
      ha
-     ha
+     ha  https://github.com/DarkEvamSar/can-sara-angel-th-think-the-script-the-money/blob/main/event.ua%20usa.then%20if%20you.md%20they%20if%20they
      ha
      ha
      ha
