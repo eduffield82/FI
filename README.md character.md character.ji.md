@@ -1,3 +1,28 @@
+are you
+
+are
+   you aware your dan oi234 ipopino2n ipo2 npio2p inopno i2inp o npio2p ino22p ino34np io2p ino34 nopi23 ino no2i ino23 ino noi23 nio2
+   'hgahg'ah'hahaa 234
+    2
+    3  th th bar th 2ion in2 inop2 
+    h 2
+     34
+     23  free node io23in  nipo2 npio2 nipo en wn wn en tr  th th th 23i4onpio2n iop2inpo inop2in po2in po2i nop 
+     4
+     2 h34
+      23  ai binary io23n ipo2n ipo2nip onpi opn io2pn io2p niop ino
+       42
+       3 4
+        234
+         23
+         4 2
+         3 4
+          23
+          4 
+          2 34
+           23
+           ino2 ino2n pionp io2npi o2pin op2in opino 2pino  ipno 
+
 lol
    character stage 001 echo they 23o4i2nio niop2n ipo in2o
 
