@@ -9,7 +9,7 @@ gala
      ha
      ha
      ha
-     ha
+     ha https://docs.dash.org/projects/core/en/stable/docs/resources/glossary.html#wallet
      ha
      ha
      ha
