@@ -1,12 +1,16 @@
 en touch f 2 o3i2  npio inpp ino2n ipp ino2pi nooipn 23op inpin o2p ino2n pio nipo2n pio2n iponp oi2n iop2n iopin o2n io2 
+![bb34febaf90ccdd8b13cfced3fb68667](https://github.com/DarkEvamSar/they-su-challenge-bot/assets/160559076/5ca4b8cd-7ac6-45d9-aeb8-4233f71481c3)
 
 ha
-  family 2oii npo2o inp2p ino2p inopino 2pio n2inp o2pin opn2i opi nop ino2 npio2p inop ino2pi nopin o2p no2 no n2n 2
+  family 2oii npo2o inp2p ino2p inopino 2pio n2inp o2pin opn2i![Haapsalu_Castle Watchtower](https://github.com/DarkEvamSar/they-su-challenge-bot/assets/160559076/049d6ab4-3c1c-4ab5-9467-e54c7380820c)
+ opi nop ino2 npio2p inop ino2pi nopin o2p no2 no n2n 2
 ha
-  fam io 23 n i2 ion2 ino ino2i
+  fam io 23 n i2 ion2 ino ino2i![Unknown-5](https://github.com/DarkEvamSar/they-su-challenge-bot/assets/160559076/f997ac65-fe44-48bf-9aaf-056ec69ead39)
+
 
 en touch gao23n niop2 ip2 npi npi2onp i2 pnoi2p oin gala point  23pi 23 23 23i2in23oi2342 3 234 2 3oi 2i3i4ni234 23423 4 oi234i2i323 4 
-the oi23 2p io2poi2 iop2ipo na start 23 3223  22342323oioio232 3 io23 23 ioin2 34 2 34 in i234o 23 23  2nin2i23in23io2i3ino23ion23 
+the oi23 2p io2poi2 iop2ipo na start 23 3223  22342323oioio232 3 io23 23 ioin2 34 2 34 in![png-clipart-angel-angel-thumbnail](https://github.com/DarkEvamSar/they-su-challenge-bot/assets/160559076/471433ef-10ed-49ad-92be-d2ded8c36451)
+ i234o 23 23  2nin2i23in23io2i3ino23ion23 
 
 th
   touch io2 ino 2in ino2 inpo np
@@ -14,7 +18,8 @@ th
 gala
      where did we learn to say 2io34 pion2niop np io2p ino2p inop ino2
      aha 
-     23 wiunen 2 ino2 inop inp2o inpo2 inpo2 nipo ni2op nipo2 ni 2
+     23 wiunen 2 ino2 inop inp2o inpo2 inpo2 nipo ni2op n![Topaz-Blue-1W-291363-1](https://github.com/DarkEvamSar/they-su-challenge-bot/assets/160559076/6a1935c5-44c9-4a60-a9e3-c31250fa98de)
+ipo2 ni 2
      4 2
      3h  a 2oi inop2 inop2 iponi opn2 ipno ipno2i pnoi pn2o ipno2 pin2 npip2 inop ino2p io
      ha
