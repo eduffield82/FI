@@ -1,3 +1,9 @@
+cray
+cray io
+cray
+    science io din piano niopinpo pin o2npi o inpo2iop n2oinp oin 2ion 2in kn 2klnln2lnk2klnn2kln  
+
+
 cray hi 29839098289780278097890287287870872870928982798792789892
 hah
 hah that ioin op2inop 2inpo inpo 2in op2
