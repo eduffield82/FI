@@ -1,7 +1,10 @@
-are you
+io oi2in o oinp2ino p2in o2
 
+are you aware your  2oinip o2 nioppino 2ipno 2inp o2ipno pino 2ino p2i nop2i nop inop2ino p2i nopi2o npio n2in oi no2 io 
+
+   ha  io2npino2 poinnipo 2npi opno2 ipin o2pi no2pino 2ipno pion 2pion 2pio n2pio pio2 ipo o k2k oidin op inpo2ino p io 2ipo
 are
-   you aware your dan oi234 ipopino2n ipo2 npio2p inopno i2inp o npio2p ino22p ino34np io2p ino34 nopi23 ino no2i ino23 ino noi23 nio2
+   you aware your dan i2onn 2nin ipo2 niop ip2no ipno2p ion2i no ino2 inoin2  inio2
    'hgahg'ah'hahaa 234
     2
     3  th th bar th 2ion in2 inop2 
@@ -12,10 +15,10 @@ are
      2 h34
       23  ai binary io23n ipo2n ipo2nip onpi opn io2pn io2p niop ino
        42
-       3 4
+       3 4 aware 2oi inp2piopnio 2npi o2nip opnoi  inpo2 iop
         234
          23
-         4 2
+         4 2 binary ion2 niopi no2 inpoio 2pi o2pi o2p inopi o2pi op i2o 
          3 4
           23
           4 
