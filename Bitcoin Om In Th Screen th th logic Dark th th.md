@@ -2,7 +2,8 @@ th io nipa npinip oasipo n ipnoi nopip no2p ino inop2 inop2 ipno iona noi snk;ll
 
 ah
 haha legend io ni2 inpo inop2o inp2inp opin oanpi oinp osain onp ioasn ioniopano ian opi n
-hah
+hah![druid_woman__by_byanel_dg3eqwz-pre](https://github.com/DarkEvamSar/they-su-challenge-bot/assets/160559076/4bdaae96-7b79-4bd6-b7a2-b09bc3cc320f)
+
 
 h
 ha h
