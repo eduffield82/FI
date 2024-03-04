@@ -1,4 +1,69 @@
+23
+'g 2
+3234  rat oi2 io2 ino ino2 3iio
 
+ahdc  rat oi2 io oi2 ino2 ion2 ioni o2
+h
+da c      child io2 io ino2 ino2i no ino2i no2  
+ c  
+rat person
+      rat 234892389892798 2879 879 28972 934 
+a
+h
+ha rat oi2i  io2 ino2i no ion2io 
+ha
+ha rat oi2i no o2in ino2 io2 
+ha
+hai oo2ni ino2io n ino23 4
+
+2h 34 
+23
+n
+ n23
+ n
+ 2n34 
+n23 b
+4
+n 23 rat oi2 i ino2 ino2 ino2
+n4b
+23b4
+n23 4j 2io3n in23io 2i o3 ioiaipod npio pnoid nopid iop ip  io creature ion23 nio nio2 ino2i on io2
+
+ioon 
+da  oi  n2io ino2 ion ino2 no2 3 
+ 23
+h 23 persn io i2o ino2 ino ino2i o2 82839 892 93
+h 23 
+4
+ 23 yoda oi ino2 nio2io nn io2 ino2i 
+4 
+2 34
+ 23  dsarath 23 8238923 8989223 
+ 42
+ 34 
+23
+ 4 n23 n ra oi2 nio ion2i no2 ino2 oi82 89237892897  78902 9780 29084 3  io23 n nio2 nip2pi nonpi o2 inpo23 nopi noip2 2 
+2342 3  
+n23 o2iiin2i no nio2 oin2 ino2ion io n2io n2io n2io io 2o3
+n 
+n 234
+ n23i4 i234  rat oi2 ino noi2 oni2 ino2io nio n2io n2 oi 
+2
+ 34
+ n  2839428908709 2807987 902323 rat io23ino2 noi ino2io n2ion oi2nnio 2n io2ion n io22
+2 34
+
+2 3
+ 23 from io23 nio ino2 io2 io ino2 
+
+2 3
+ 23
+ 4 io ino2 noi ino2io n2 creature  oi 2i ino2n io2 ino i2 
+
+ua   io23i o2 inon io2 oin2 inoion 2n io2 ioni on2i no i2n ni23 inoi no23o in23 iono in23 io io23i 23 
+ha h
+R   rat 234823988792879 2987879 027890 2 78908 92 i3io23 ioinop23 nio n2ipo npoi2 noip nio2i no23 
+43 
     rat 
 eg'a 
 ch
