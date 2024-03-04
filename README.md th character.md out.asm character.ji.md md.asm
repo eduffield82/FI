@@ -1,3 +1,45 @@
+2 23
+4hg 23'4234  touch el  23 89234 72398478902380970897 23089 234 
+2 3
+ g23 legend of zleda 2348238897287902789987 234  
+4   
+ 23  
+4  legend      of zeldda   23io2i2no in o2ino 2ino noi 2i i2239842374 789023807948097 230 897 807923 4 
+2y34 h234ha 
+2h3 ui
+  kegd a ns 823923 legend oi23 i2i2ionion 2oi2iooi2 di si th fi du er 
+
+h234 
+23       less directory i23in o2n iooin2ino 2ino ino2n io2 
+23 4
+    er ai 
+2
+ 3 2323  desrosy  2ii n 2iooin2 oin ino2io 2 io io2 io2io28288923 
+
+2 3
+ 23 
+i2 2io i2ioniooi
+
+destoory 2i 2io ino2io2
+
+ei
+  connect dragon io2 io2io io n2i on2 ion ion2 ino2in o2 i3ni2io3ion2 3ino noi2poi3 er 23 4io23 io23 o2 ioio233
+ehta 
+e   lead oio2in ino2io 2 copper oi2 inoin o2in o2io ni on2 
+
+a 
+ch copper oi2 i n2 ino in2o ion2 ion2
+ca
+  leader oi234 io2 ino ino2 nio2i no 2 
+
+er
+er creature ei ei scroll io2 34oi o2niop n2ion pp2ion p ino2 npiop ino2io n2 34 peach ino2 i2 ipoi no2 nio2 ionio 23 ei io23 io 2ion ion234 
+er
+er legend oi234i2 inp3i nop2 inop inop2 ino2oin  oin23 noi2
+er
+er
+er 
+
 er
   creature 2 2 i 2io2inonio2oinio2n3oinio234 
 
