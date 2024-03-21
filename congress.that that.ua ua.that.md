@@ -1,4 +1,69 @@
-laptop 2398 7 879 78234 
+gym
+     er 
+     er er
+
+           
+   
+   er
+     him er oin i niooin  nio ino nioonpi anoi inop klc;lanl ;k n;klaks ;nld naisdi 
+     nad nani 
+      n
+      i
+       ni
+       r ine
+        nir
+        i nei rn ie
+        r 
+        e rn
+         e
+         n ir
+          ieri onei orion nioeio r 8 89 89238 23879 897 897 8934io  on ino34 io ion3434 5
+           n
+
+            nn i34
+            in 5 
+            ni
+            in 
+            in34ni
+
+             i n 
+             in3i4 n
+             5i
+              nin 
+               i345 8 3
+               n 
+                3 n
+                i45
+                 in5 ni
+
+                  i3
+                  i 
+                  i3
+                  in 45 ni
+                  i
+                   no34i
+                   in 3
+                    ni4
+                     5nn
+                     iin 
+                     3
+                     in 45   ni
+                      345 
+
+him 
+   erha 
+   d   ehieman c
+   d  a         86792679 9298 98273 987 89023089408923 0984 823 nuooni2 
+   n2n 34
+   n i2
+   in 34n
+   i 2
+   n3 i4
+   in 23
+   in 4i n
+   234 829 38no23 i4
+
+er laptop 2398 7 879 78234 
 234h
 
  23 
