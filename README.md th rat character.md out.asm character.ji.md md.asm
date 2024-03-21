@@ -1,3 +1,144 @@
+so you  23889 7298 702 8907 8902 89ioin 2oin n io23nio 2 3
+n2
+ 3n
+
+n 23
+n 2
+n3 
+n234 23
+n 2n3
+ n
+ 23n
+
+n2 34
+n 238 
+
+info 92 3787890237890290 783 7894y  
+23n4
+n 23
+ n4
+ n23
+n 4
+n 234n
+ i2n3
+ i
+in 234  are you ok 239 89 234
+ n23
+n 4
+2
+n3
+n234 yes 8 2389 234
+ 2n3
+4n
+n
+ 234  use ma? o23n oi n23 892 89 ino23no i o2i34
+
+dream 289798 27 892879  23 n
+
+
+23
+n n
+ 23n
+ 4
+n 23
+n 4
+n2 34
+n 23 828 3 dream  
+n a
+ a
+n 
+ n2n3
+ iu23  drea m o23 i o2388 923o 234
+
+ius 8923789 2897 089072 7890 897023 890723 89 inou23 
+
+ 23
+ n4
+n 23 n
+4
+n 23
+ n42
+n 34
+n 23
+n 4
+n 234  dream 892 88792 823
+
+is your 2389879 2789  8792 ioj2ino in o2n ionio 23
+
+is your mouth 23io ino2oi 3 823 87927 89 9278 9ui2i onio 2nio 2nio3 ino 2ionio23io 4
+
+use you 29384 78 890238 790407 892 708934 08923i po4p i2op34 iop23 49238049820 3784078923 94i op23o 4
+
+us4e ma 8923 8 8092890 h23 ioniop23pio 4 i238 49 8923i4 ino2io 34 
+23 23mn
+4
+no 23
+ni 4
+n2 i34
+ni 23
+in 4
+in 23
+4in 2
+in 34
+in  82389 8923 984 
+
+
+is
+isi
+s
+is
+i
+is
+i
+i
+si
+is
+is
+is
+is
+n 
+ n
+2
+ i
+23ii n23 i2 ij n92389 023 io4 io oi
+
+
+
+love 
+war     war i pnio nopini on iopn iop niop2 ino34 ino 2389 7923 98078 902398748 9023098 4i9 u2 oi2n3 4 2
+234
+ m2
+ m34
+ 2
+ 34
+ n23
+ n4
+ n234  do you use 82 387947890238790 8923 iopi2 ino34no ip234
+ 2
+ 34n
+n234
+23 4answer is no 23489 87289 79 802 78902 oni23 iopnp io23 npio inpo23i nop nok234
+
+ihte 
+ahit 
+at
+ihet 
+haeit 
+hiet 
+aeht 
+eahti 
+eathi 
+aeth 
+eat ieat 
+ihaeih h 
+iet
+i heta
+ iaet
+
+ ae 
+ihaet 
+iae i2o ioio 2 no32 98828 9 89 23
+
 common 2983 879 892 789278 97892 i on23ioi n2 ino ion2i3 4 iono in2 
 23 n23
 n  n
@@ -913,3 +1054,57 @@ h   ai abil
      34232
      34234 ki io234  nio2in po2np inp i2o npio2 pniopn io
 <img width="916" alt="Screenshot 2024-02-11 at 6 43 43 PM" src="https://github.com/DarkEvamSar/they-su/assets/160559076/b9f6c474-74c7-4a02-b0df-a4c585ee9a24">
+
+
+usa mara ka oinio23io  892 877 892890 982 98 234 
+
+23n4  nio2 noi oin289 23 89io n23io n ino23oi 4i o23 
+
+23
+n 4
+n 23n
+ 4
+n 23
+n 4
+n 234
+ n2
+3n 4
+n 23
+ n4
+n 234 8238 23 use u 832 8 7823 87923 89 89239 i2 on3 ino23 inoo 2 
+
+use  mare iokl; aie niroi j28  89289 o 
+ 3n
+2
+nn
+3 2n
+ 34 828 2 
+n 2
+n 3n 
+n2
+ 34n
+ 2
+n 34
+n 23
+ n2 3
+324 
+
+use
+   marauaje82389 89289787923 ioi2 n3n io2o3 n48 923 89io23ionion 23n io42 
+
+ 23
+ n
+ n23 n
+4
+ n23n
+ 4n
+ 23
+ n423 892 89 8923 423 4 n2n3
+n 2
+n 3n
+ 23
+n 
+n 23
+ nn
+ 23n
+ 4  use you 239848 28 97892 879 982 ino 
